@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 ===================================================================================================================================
 
 
-Data Analist | Data Engineer | Mecatronic Engineer | Teacher
+Data Analist | Data Engineer | Mechatronic Engineer | Teacher
 --------------------------------------------
 
 ### Passionate about: Tecnology, all about data, Music, Movies and Series ♪ 🎞️  ⚙️ 📈
